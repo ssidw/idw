@@ -1,2 +1,2 @@
 # idw
-Project idw
+just ai slop
